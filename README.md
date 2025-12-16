@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-PEVR010723MCSRZCA1
+PEVR010723MCSRZCA1
